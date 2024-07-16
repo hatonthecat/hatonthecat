@@ -2,8 +2,7 @@
 ---
 
 
-Hello, I am like a [Just-in-time](https://en.wikipedia.org/wiki/Just-in-time_compilation) compiler in real life. That means I improvise almost everything in my free time. Some of this is by choice, and the rest, is undetermined.
-
+Hello, I am neither an artistic writer, nor a technical writer. I occupy the Acheron. 
 
 ![image](https://github.com/hatonthecat/hatonthecat/assets/76194453/6df0ce7b-4814-4d4e-8992-f52ed6509f9d)
 
