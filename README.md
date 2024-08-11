@@ -1,7 +1,16 @@
 "Certainly all historical experience confirms the truth - that man would not have attained the possible unless time and again he had reached out for the impossible." -Max Weber"
 ---
 
+8/10/2024: Dear Internet Reader
+--
 
+Please read this: 
+
+https://www.ow2.org/view/Events/The_European_Union_must_keep_funding_free_software_open_letter
+
+https://pad.public.cat/lettre-NCP-NGI 
+
+---
 Hello, I am neither an artistic writer, nor a technical writer. I occupy the Acheron. 
 
 ![image](https://github.com/hatonthecat/hatonthecat/assets/76194453/6df0ce7b-4814-4d4e-8992-f52ed6509f9d)
