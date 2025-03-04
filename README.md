@@ -1,3 +1,4 @@
-![image](https://github.com/user-attachments/assets/711d50ff-5783-41dd-9e04-c42bb355ef1e)
+![image](https://github.com/user-attachments/assets/fcdb4099-9f6b-4298-88fc-b71514a1e68c)
+
 
 [CV.pdf](https://github.com/user-attachments/files/17247840/Resume.GL.-.2024.pdf)
