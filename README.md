@@ -2,3 +2,5 @@
 
 
 [CV.pdf](https://github.com/user-attachments/files/17247840/Resume.GL.-.2024.pdf)
+
+[Transcripts UIUC.pdf](https://github.com/user-attachments/files/19130246/Transcripts.UIUC.pdf)
