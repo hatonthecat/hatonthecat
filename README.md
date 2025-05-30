@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/fcdb4099-9f6b-4298-88fc-b71514a1e68c)
+![image](https://github.com/user-attachments/assets/15dc3e56-7761-43ab-9607-909ad849d534)
 
 
 [CV.pdf](https://github.com/user-attachments/files/17247840/Resume.GL.-.2024.pdf)
