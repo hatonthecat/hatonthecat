@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/15dc3e56-7761-43ab-9607-909ad849d534)
+<img width="1259" height="854" alt="image" src="https://github.com/user-attachments/assets/e09e72e5-f469-48c8-b67a-86a9f1137e23" />
+
+https://www.youtube.com/watch?v=t-4ADaq9og4&t=17s
 
 
 [CV.pdf](https://github.com/user-attachments/files/17247840/Resume.GL.-.2024.pdf)
