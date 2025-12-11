@@ -1,7 +1,3 @@
-Only you can prevent truth decay
-
-<img width="960" height="1386" alt="image" src="https://github.com/user-attachments/assets/b505dc5f-ed91-47ac-afb3-0a531c3dfea8" />
-
 
 https://www.youtube.com/watch?v=t-4ADaq9og4&t=17s
 
