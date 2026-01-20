@@ -1,6 +1,5 @@
 
-https://www.youtube.com/watch?v=t-4ADaq9og4&t=17s
-
+https://electrics.mataroa.blog/
 
 [CV.pdf](https://github.com/user-attachments/files/17247840/Resume.GL.-.2024.pdf)
 
