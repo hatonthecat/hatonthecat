@@ -1,3 +1,5 @@
+02/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin. Generalist/Systems Thinker. Task rabbit less preferred, but open to consideration.
+
 
 <img width="5319" height="3837" alt="image" src="https://github.com/user-attachments/assets/92716838-b873-414a-8204-6d38cb1cb5b7" />
 
