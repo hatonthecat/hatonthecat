@@ -5,7 +5,7 @@
 
 https://electrics.mataroa.blog/
 
-[CV](https://github.com/user-attachments/files/25746511/Copy.of.Resume.GL.-.2026.pdf)
+[CV 03-2026](https://github.com/user-attachments/files/25746646/Copy.of.Resume.GL.-.2026.pdf)
 
 [Transcripts UIUC.pdf](https://github.com/user-attachments/files/19130246/Transcripts.UIUC.pdf)
 
