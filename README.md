@@ -1,4 +1,4 @@
-02/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin. Generalist/Systems Thinker. Task rabbit less preferred, but open to consideration.
+02/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin/Europe. Generalist/Systems Thinker. I am a hard working person who goes beyond what is asked of the job. I am quite open minded with work and don't believe "e-mail jobs" are real as 90% of my previous jobs were answering phone calls to customers who wanted to speak to a human agent. 
 
 
 <img width="5319" height="3837" alt="image" src="https://github.com/user-attachments/assets/92716838-b873-414a-8204-6d38cb1cb5b7" />
