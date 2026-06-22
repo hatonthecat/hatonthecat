@@ -1,12 +1,7 @@
 02/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin/Europe. Generalist/Systems Thinker. I am a hard working person who goes beyond what is asked of the job. I am quite open minded with work and don't believe "e-mail jobs" are real as 90% of my previous jobs were answering phone calls to customers who wanted to speak to a human agent. 
 
-
-<img width="5319" height="3837" alt="image" src="https://github.com/user-attachments/assets/92716838-b873-414a-8204-6d38cb1cb5b7" />
-
 https://electrics.mataroa.blog/
 
 [CV 03-2026](https://github.com/user-attachments/files/25747504/Copy.of.Resume.GL.-.2026.pdf)
 
 [Transcripts UIUC.pdf](https://github.com/user-attachments/files/19130246/Transcripts.UIUC.pdf)
-
-![image](https://github.com/user-attachments/assets/31d7e581-4242-4703-82d7-d0ac1ce82ebd)
