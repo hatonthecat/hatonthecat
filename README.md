@@ -1,6 +1,4 @@
-07/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin/Europe. Generalist/Systems Thinker. I put attention to detail. 
-
-<img width="1408" height="768" alt="Gemini_Generated_Image_q3ngf2q3ngf2q3ng" src="https://github.com/user-attachments/assets/90472d9a-5f24-4794-aa6b-14d9e50a13c4" />
+07/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin/Europe. Generalist/Systems Thinker. I put attention to detail.
 
 https://electrics.mataroa.blog/
 
