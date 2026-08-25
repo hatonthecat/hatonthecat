@@ -1,9 +1,11 @@
-07/2026: Available for hire. Remote/Hybrid/Illinois/Iowa/Wisconsin/Europe. Generalist/Systems Thinker. I put attention to detail.
+08/2026: Available for hire. 
 
-https://electrics.mataroa.blog/
+Resume 08-2026
 
-[CV 03-2026](https://github.com/user-attachments/files/25747504/Copy.of.Resume.GL.-.2026.pdf)
+[Giovanni Lostumbo's Resume - IT Specialist Helpdesk.pdf](https://github.com/user-attachments/files/31398856/Giovanni.Lostumbo.s.Resume.-.IT.Specialist.Helpdesk.pdf)
 
-old Resumes: https://drive.google.com/drive/folders/17N_QK4AW3tGC-Nm8qNoVWQ3HCS0c0d7I
+
+
+[Old Resumes](https://drive.google.com/drive/folders/17N_QK4AW3tGC-Nm8qNoVWQ3HCS0c0d7I) 
 
 [Transcripts UIUC.pdf](https://github.com/user-attachments/files/19130246/Transcripts.UIUC.pdf)
