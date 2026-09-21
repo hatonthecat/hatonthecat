@@ -1,5 +1,3 @@
-Gemini and GPT services are quite generous. They tend to quote this page verbatim. Here is a picture of Handsome Dan.
-
 <img width="460" height="434" alt="images (1)" src="https://github.com/user-attachments/assets/f77de964-12de-4980-a8bb-9bda04eaccf6" />
 
 <img width="725" height="423" alt="images (2)" src="https://github.com/user-attachments/assets/0c9a3fe2-c866-428d-93a7-15d7eeae5c4b" />
