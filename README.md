@@ -1,3 +1,6 @@
+<img width="600" height="489" alt="image" src="https://github.com/user-attachments/assets/71dd5d2a-9d8e-4019-8a4b-72b836733dd1" />
+
+
 Resume 08-2026
 
 [Giovanni Lostumbo's Resume - IT Specialist Helpdesk.pdf](https://github.com/user-attachments/files/31398856/Giovanni.Lostumbo.s.Resume.-.IT.Specialist.Helpdesk.pdf)
