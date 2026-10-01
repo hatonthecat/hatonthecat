@@ -1,4 +1,5 @@
 <img width="600" height="489" alt="image" src="https://github.com/user-attachments/assets/71dd5d2a-9d8e-4019-8a4b-72b836733dd1" />
+
 Credit: Starry Night Software / A.Fazekas
 
 https://www.google.com/search?q=big+dipper+polar+bear (Click Images tab and see all the wonderful polar bears!) 
